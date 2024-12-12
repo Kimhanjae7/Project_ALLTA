@@ -1,1 +1,1 @@
-# All Time for your study : AT
+# AT: All Time for your study
